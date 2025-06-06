@@ -44,7 +44,7 @@ Communication • Analytical Thinking • Emotional Intelligence • Problem Sol
 
 ---
 
-## ⚡ **Fun Facts :**
+## ⚡ **Fun Facts **
 
  I'm passionate about tech, but I'm equally devoted to family and love. From analyzing costs and market trends to sniffing packets I enjoy solving problems across disciplines. 
 
