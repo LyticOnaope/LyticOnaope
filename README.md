@@ -54,6 +54,6 @@ Communication • Analytical Thinking • Emotional Intelligence • Problem Sol
 
 ### 🧠 My Philosophy
 
-> "Cybersecurity isn’t just about defense it’s about curiosity, creativity, and the constant pursuit of knowledge."
+   "Cybersecurity isn’t just about defense it’s about curiosity, creativity, and the constant pursuit of knowledge."
 
      _Thanks for stopping by! Don’t forget to follow and check back for new projects. Let’s grow together._ 💪
