@@ -1,4 +1,4 @@
-# 👋 Hi there, I'm Onaopemipo 
+# 👋 Hi there, I'm **Onaope**
 🎓 **Psych Graduate**  📊 **EX Financial Cost Analyst**   🛡️ **Cybersecurity Enthusiast**   🧑‍💻**Tech Explorer**  🔗[Linkedin](https://www.linkedin.com/in/onaopemipo-olugbemiro)  📧[Email](https://itzonaope@gmail.com)    🐤[X](https://x.com/myboionaope) 
 
 ---
